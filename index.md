@@ -2,7 +2,7 @@
 
 Site em construção
 
-### Contato
+### [Contato](mailto:luaneandrade.adv@gmail.com)
 
-luaneandrade.adv@gmail.com
+
 
